@@ -1,0 +1,1 @@
+# Nykaa-static-part
